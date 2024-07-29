@@ -1,5 +1,6 @@
 
-![images (1)](https://github.com/user-attachments/assets/270cf546-14a4-4378-b046-a699ff947692)
+![download (3)](https://github.com/user-attachments/assets/0dc448b6-435a-4269-a8e3-8e9d90d9f5ce)
+
 
 # JOBS IN INDIA -Analysis
 
