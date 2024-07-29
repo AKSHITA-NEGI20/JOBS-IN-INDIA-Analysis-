@@ -1,4 +1,5 @@
-![download](https://github.com/user-attachments/assets/e0b27316-2e75-46ca-928a-ab3f8ed412b2)![images](https://github.com/user-attachments/assets/a25be252-25b4-42dd-8df7-6352f76a82d4)
+![dow![images (1)](https://github.com/user-attachments/assets/934a95b6-b337-496f-ba8e-e8defb8bb8f5)
+nload](https://github.com/user-attachments/assets/e0b27316-2e75-46ca-928a-ab3f8ed412b2)![images](https://github.com/user-attachments/assets/a25be252-25b4-42dd-8df7-6352f76a82d4)
 
 # JOBS IN INDIA -Analysis
 
