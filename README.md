@@ -1,4 +1,5 @@
-![download](https://github.com/user-attachments/assets/e0b27316-2e75-46ca-928a-ab3f8ed412b2)
+![download](https://github.com/user-attachments/assets/e0b27316-2e75-46ca-928a-ab3f8ed412b2)![images](https://github.com/user-attachments/assets/a25be252-25b4-42dd-8df7-6352f76a82d4)
+
 # JOBS IN INDIA -Analysis
 
 # Data from: world bank  
